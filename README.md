@@ -1,0 +1,1 @@
+# wpglobus-seo
